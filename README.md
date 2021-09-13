@@ -1,3 +1,3 @@
 # Error-404_Inheritance
 
-![](download.jpg)
+![](/memes/download(1).jpg)
