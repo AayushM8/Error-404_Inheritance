@@ -1,6 +1,8 @@
 
 # Error-404_Inheritance
 
+![](/memes/meme.jpg)
+
 ![](/memes/E404meme.jpg)
 
 
@@ -8,3 +10,4 @@
 
 
 ![](/memes/maymay.jpg)
+
